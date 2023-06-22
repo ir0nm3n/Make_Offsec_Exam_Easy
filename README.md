@@ -5,6 +5,6 @@ If you wish to pass **OSCP/OSWA/OSED/OSEP/OSWE** easily and get **OSCE3** certif
 
 My Only Sellix Shop: https://ir0nm3n.mysellix.io/
 
-My Only Discord Account: **ir0nm3n#1846**
+My Only Discord Account: **ir0nm3n**
 
 My Only Telegram Account: https://t.me/ir0nm3n3
